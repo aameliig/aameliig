@@ -1,0 +1,4 @@
+- 😺 Hi, I’m Ameli (@aameliig)
+- 📚 CS HSE AMI Student
+- 🧐 Currently studying for a bachelor's degree, really interested in programming
+- 📩 How to reach me: a.ameli.ig@gmail.com
